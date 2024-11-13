@@ -1,2 +1,2 @@
 # String-Library
-https://imgur.com/a/ndLshtz
+](https://imgur.com/a/ndLshtz)
